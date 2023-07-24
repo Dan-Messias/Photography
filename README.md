@@ -1,2 +1,2 @@
 # Photography
-Page simples para fotógrafos
+Page pessoal simples para fotógrafos
